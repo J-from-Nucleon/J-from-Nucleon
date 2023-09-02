@@ -1,2 +1,4 @@
-- 👋 Hi, I’m @J-from-Nucleon
-I'm a muscian, composer, Producer, Furry, wannabe animus Nightwing, Wings of Fire and Pokémon enthusiast and tech nerd with a special place for Linux
+- 👋 Hi, I’m Lightwreather Dragonsbane
+Musician, Orchestrator Furry, Cosmere & Pokémon enthusiast and Aviation enthusiast. Amphibia Survivor
+he/him, wolf/fox boy; often half-dragon
+Working on: The Book of Worlds
